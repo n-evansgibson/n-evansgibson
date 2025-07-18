@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any projects related to my interests
 - 📫 How to reach me: nevansgi@andrew.cmu.edu 
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I hate fun
+- ⚡ Fun fact: I'm a mermaid in my fre time (AKA competitive swimmer)
 
 <!---
 n-evansgibson/n-evansgibson is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
