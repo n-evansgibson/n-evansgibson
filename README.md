@@ -1,5 +1,7 @@
 Hi, I’m Natalia! 
+
 Profile: @n-evansgibson
+
 I'm always looking for a good challenge... reach out to me at nevansgi@andrew.cmu.edu 🏹
 
 Bonus...my profile picture is part of the raw audio signal from the song "One Way Trigger" by The Strokes!
